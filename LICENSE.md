@@ -1,4 +1,4 @@
-# 
+# Get the ultimate MindManager for Windows plugin with automatic MindManager for Windows Plugin | offline-access + themes. Featuring offline-access and themes, it's the best choice
 
 
 
